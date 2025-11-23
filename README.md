@@ -29,8 +29,9 @@ A developer with a passion for building scalable solutions and a keen focus on r
 
 ### 📫 How to reach me:
 
-* Find me on [LinkedIn](link-to-your-linkedin).
-* Shoot me an email at [your-email@example.com].
+* Find me on [LinkedIn](linkedin.com/in/saravindsubbu).
+* Shoot me an [Email](aravindsubbu.dev@gmail.com) here.
+* Listen to my podcasts at [Spotify](https://open.spotify.com/show/47TDNErUgiaVUnH2EvHhn4)
 
 ### ⚡ Fun fact:
 
